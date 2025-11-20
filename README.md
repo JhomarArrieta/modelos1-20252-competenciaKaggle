@@ -6,4 +6,4 @@ Maria Paula Mosquera Álvarez - 1022002020 - Ingenieria de Sistemas
 Jhomar Farid Arrieta Montes - 1068136291 - Ingenieria de Sistemas
 
 ## Entrega 2
-https://youtu.be/j5NTiI3KMFo
+https://youtu.be/mOW9i3MDGBM
