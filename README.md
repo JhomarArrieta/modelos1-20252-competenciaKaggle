@@ -9,4 +9,4 @@ Jhomar Farid Arrieta Montes - 1068136291 - Ingenieria de Sistemas
 https://youtu.be/mOW9i3MDGBM
 
 ## Video entrega Final
-[[https://youtu.be/3OY280FXrX0](https://youtu.be/pWrnIIrplJ8)](https://youtu.be/pWrnIIrplJ8)
+https://youtu.be/pWrnIIrplJ8
